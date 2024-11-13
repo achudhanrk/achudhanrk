@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @achudhanrk
-- 👀 I’m interested in ...dark relationship 
+- 👀 I’m interested in ...Travelling
 - 🌱 I’m currently learning ...ui&ux design 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
